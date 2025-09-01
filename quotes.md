@@ -1,3 +1,3 @@
 Always more questions than answers there are.
 There are always more questions than answers.
-There are always more questions than answers.
+Always questions than answers there are.
